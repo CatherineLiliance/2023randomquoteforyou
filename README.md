@@ -1,1 +1,1 @@
-# 2023randomquoteforyou
+# 2023randomquoteforyou.github.io
